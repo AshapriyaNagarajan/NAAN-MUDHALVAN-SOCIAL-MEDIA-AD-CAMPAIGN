@@ -12,3 +12,5 @@ Facebook backpicture video link: https://drive.google.com/file/d/1wPj0fmLaFrPCZe
 Facebook post upload video: https://drive.google.com/file/d/1F5UOJ1P3MSdX5t92q698Q_Z8iUi4xdwn/view?usp=sharing
 website creation  video part1: https://drive.google.com/file/d/1MADpyd5O-H7bukijHwCCMaPF6jg-myKi/view?usp=sharing
 website creation video part2: https://drive.google.com/file/d/173y9EpJv7ftDM7Zhn2cRBxMmBjzSfT7r/view?usp=sharing
+business page creation video link: https://drive.google.com/file/d/1Sm_OiCrPDY5cRXqo35XK4ltBLvaxWp5I/view?usp=sharing
+overall video link: https://drive.google.com/file/d/1VmxDXoO43LRrylWzJEWbbdShEhqUqL8k/view?usp=sharing
